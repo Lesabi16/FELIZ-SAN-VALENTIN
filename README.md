@@ -97,7 +97,7 @@
             </video>
 
     <p style="text-align: center; font-size: 1.2rem; color: #ff6b6b; margin-top: 10px;">
-        No sé como decirte sin que suene demasiado, pero te lo digo "Te quiero", me gusta hablar contigo aunque ultimamente te he sentido distante pero aun así quiero saber cómo estás, cómo te sientes o qué hiciste durante el día, así como esa notita que esta al final nunca olvides que eres una persona increible e importante, y que eres especial para mi nunca lo olvides, ni lo dudes, te mando besitos y abracitos de oso. Te iba aponer una musiquita pero me acorde de ese video que ya te habia enviado antes. Estaba pensando capaz piensas que estoy loquitaaaaa jajajaj   
+                No sé como decirte sin que suene demasiado, pero te lo digo "Te quiero", me gusta hablar contigo aunque ultimamente te he sentido distante pero aun así quiero saber cómo estás, cómo te sientes o qué hiciste durante el día, y así como esa notita ese nunca olvides que eres una persona increible e importante, y que eres especial para mi nunca lo olvides, ni lo dudes, te mando besitos y abracitos de oso. Te iba aponer una musiquita pero me acordÉ de ese video que ya te había enviado antes. Estaba pensando capaz piensas que estoy loquitaaaaa jajajaj   
    
    	  
    	
